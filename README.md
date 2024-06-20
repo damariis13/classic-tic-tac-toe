@@ -1,1 +1,1 @@
-Juego Michi en peruano 🇵🇪
+Juego Michi en peruano 
